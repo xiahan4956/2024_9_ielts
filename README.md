@@ -23,7 +23,4 @@
 11-26 今天和昨天都在泛听youtube 听了两天. 精听了一个海岛求生的视频  
 
 
-11-26 今天和昨天都在泛听youtube 听了两天. 精听了一个海岛求生的视频  
-
-
-11-26 今天和昨天都在泛听youtube 听了两天. 精听了一个海岛求生的视频  
+11-27 今天精听1H的youtube No Sleeping Bag or Shelter | Winter Survival with LIMITED GEAR  

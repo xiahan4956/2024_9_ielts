@@ -24,3 +24,6 @@
 
 
 11-27 今天精听1H的youtube No Sleeping Bag or Shelter | Winter Survival with LIMITED GEAR  
+
+
+11-29 今天尝试把平时要做的事情,直接在youtube里面搜,然后泛听.这样做听力也推进了其他的事情. 今天看了拉伸的视频  

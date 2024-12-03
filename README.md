@@ -30,3 +30,6 @@
 
 
 12-2 泛听 Joe Rogan Experience #1399 - Pavel Tsatsouline 感觉找听力材料，有感觉的办法是从关心的问题的出发。   具体的说    先有问题 找很多书看 发现好的作者 去youtube找这个作者的访谈        这样练习了听力 也把关心的问题解决了 料  
+
+
+12-3 精听 Joe Rogan Experience #1399 - Pavel Tsatsouline  debug的时候就是最好的精听时间  

@@ -33,3 +33,6 @@
 
 
 12-3 精听 Joe Rogan Experience #1399 - Pavel Tsatsouline  debug的时候就是最好的精听时间  
+
+
+12-4 今天主要看了看YouTube的joe rogen和马老板的谈话  

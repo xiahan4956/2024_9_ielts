@@ -39,3 +39,6 @@
 
 
 12-5 今天还是泛听youtube,不过看了一些壶铃的英文书..不是很看的懂..  
+
+
+12-6 Joe Rogan Experience #1399 - Pavel Tsatsouline..  

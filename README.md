@@ -48,3 +48,6 @@
 
 
 I feel the most strong motivation of writing English to ask ChatGPT is that GPT would answer more quickly compared to Chinese...  
+
+
+Today I' build a word correction mechanism ，And chat with chatgpt to discuss some technical matters  And continually, Listened to that video  

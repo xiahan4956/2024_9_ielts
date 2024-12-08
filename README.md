@@ -45,3 +45,6 @@
 
 
 今天继续精听youtube,同时用ai把壶铃书籍改成英文的总结,把阅读拉一下 另外和ai尝试英文聊聊当下问题.  感觉还缺一个办法,把错误单词很好的归类问题.  
+
+
+I feel the most strong motivation of writing English to ask ChatGPT is that GPT would answer more quickly compared to Chinese...  

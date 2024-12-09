@@ -51,3 +51,6 @@ I feel the most strong motivation of writing English to ask ChatGPT is that GPT 
 
 
 Today I' build a word correction mechanism ，And chat with chatgpt to discuss some technical matters  And continually, Listened to that video  
+
+
+I found if we encounter a bug which is hard to solve. At this moment ,we can talk with GPT  to in english to get solution.. it's a good scneriao to parice speaking and really solve the bug..  

@@ -54,3 +54,6 @@ Today I' build a word correction mechanism ，And chat with chatgpt to discuss s
 
 
 I found if we encounter a bug which is hard to solve. At this moment ,we can talk with GPT  to in english to get solution.. it's a good scneriao to parice speaking and really solve the bug..  
+
+
+today I have tried to use claude to summary some books into English to read.Then read about 3 books  

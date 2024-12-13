@@ -57,3 +57,6 @@ I found if we encounter a bug which is hard to solve. At this moment ,we can tal
 
 
 today I have tried to use claude to summary some books into English to read.Then read about 3 books  
+
+
+12-13 精听youtube1H   

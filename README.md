@@ -60,3 +60,6 @@ today I have tried to use claude to summary some books into English to read.Then
 
 
 12-13 精听youtube1H   
+
+
+12-13 感觉gemini 练习口语更强 因为他的这个高级语音是一直开启 并不是像GPT这样只能用一个小时  
